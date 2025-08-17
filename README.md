@@ -1,3 +1,4 @@
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=elanourr&color=1960d0&label=⠀⠀⠀⠀⠀꒰⠀⠀wishes⠀⠀⟡⠀⠀⠀⠀&abbreviated=true)⠀⠀⠀⠀ i miss ami
-<img width="735" height="733" alt="3_Sem_Titulo_20250719003259" src="https://github.com/user-attachments/assets/5ef892b4-8984-418c-b4d7-24ea449fb5f2" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=elanourr&color=red&label=⠀⠀⠀⠀⠀꒰⠀⠀c00lgui⠀⠀⟡⠀⠀⠀⠀&abbreviated=true)⠀⠀⠀⠀ i miss ami
+<img width="2164" height="1624" alt="1000172157" src="https://github.com/user-attachments/assets/1dd7d161-35eb-4845-8782-62e0003b2ffe" />
+
