@@ -1,6 +1,6 @@
 <img width="2048" height="410" alt="1000172497" src="https://github.com/user-attachments/assets/98839349-1862-47df-9872-4868c87d3a0c" />
 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E8162E&width=435&lines=DECLARATION++++OF++++PROPHECY++++!)](https://git.io/typing-svg)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=elanourr&color=e8162e&label=⠀⠀⠀⠀⠀꒰⠀⠀c00lgui⠀⠀⟡⠀⠀⠀⠀&abbreviated=true)⠀⠀⠀⠀ #tuberskidd #yaoi 
 
 <img width="2048" height="18" alt="1000172499" src="https://github.com/user-attachments/assets/f1d14894-ae0a-4073-81e1-c6180a13ec01" />
