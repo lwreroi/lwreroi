@@ -1,5 +1,3 @@
-![](https://komarev.com/ghpvc/?username=elanourr&color=grey&label=views&abbreviated=true)
-
-![](https://cdn.discordapp.com/attachments/1398932961562333264/1421718156896108564/Untitled62_20250928085451.png?ex=68da0db6&is=68d8bc36&hm=08c05990a7f696de771fa5e59737e9d4b592615fff5347a17652228116033e55&)
+![](https://komarev.com/ghpvc/?username=lwreroi&color=grey&label=views&abbreviated=true)
 
 [@BlLLYBATSON](https://github.com/BlLLYBATSON) [@BLURRED-BOLT](https://github.com/BLURRED-BOLT) [@johnIocked](https://github.com/johnIocked) <-- alts
